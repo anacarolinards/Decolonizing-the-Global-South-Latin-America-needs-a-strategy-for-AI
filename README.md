@@ -1,0 +1,1 @@
+# Decolonizing-the-Global-South-Latin-America-needs-a-strategy-for-AI
